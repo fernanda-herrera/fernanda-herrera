@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with frontend projects or UI UX design
 - 📫 How to reach me: fernanda-herrera hotmail.com
 - 😄 Pronouns: neutral
-- ⚡ Fun fact: I love cats Im crazy cat lover
+- ⚡ Fun fact: I love cats Im crazy cat lover :cat2: :cat2: :cat2: :cat2:
 
